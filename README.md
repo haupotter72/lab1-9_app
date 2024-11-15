@@ -4,3 +4,6 @@ demo các lab :
 ![image](https://github.com/user-attachments/assets/45beef83-5489-4fab-8ac7-a74c710936b3)
 ![image](https://github.com/user-attachments/assets/274b2911-6d37-4709-a72d-1bd8d04eb302)
 ![image](https://github.com/user-attachments/assets/0103f280-c57f-43f9-a9f6-ba89b61093a8)
+![image](https://github.com/user-attachments/assets/2f8c14e7-a8dd-4ffe-a5cb-09660ea5a947)
+![image](https://github.com/user-attachments/assets/035f08b7-c64b-4e54-810a-3a34ad7931c3)
+
